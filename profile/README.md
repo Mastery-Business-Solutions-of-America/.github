@@ -27,8 +27,8 @@ More tools in the Boltway line coming soon.
 
 ## Contact
 
-- 📧 General & M&A inquiries: sam@getboltway.com
-- 💼 Partnership and enterprise engagements: sam@getboltway.com
+- 📧 General: sam@getboltway.com
+- 💼 Partnership, M&A and enterprise engagements: sam@masterybusinessamerica.com
 
 ---
 
